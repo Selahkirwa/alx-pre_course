@@ -1,1 +1,1 @@
-The necessity of concentration in all projects
+concentration is a necessity in all projects
